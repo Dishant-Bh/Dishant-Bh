@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dishant-Bh
 -    I’m interested in Creativity
--    I’m currently learning life
--    I’m looking to collaborate on world of ceativity
+-    I’m currently exploring......... 
+-    I’m looking to collaborate with world of ceativity
 -    Anyone can reach me through my GIT profile
 -    Pronouns: Him
 -    Fun fact: Nothing
